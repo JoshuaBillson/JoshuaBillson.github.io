@@ -1,0 +1,5 @@
+Title: Why Cats Are Awesome - Part 1
+Date: 2022-02-08 8:00
+Category: Blog
+
+Cats are awesome because they don't need walks.
